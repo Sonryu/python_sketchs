@@ -1,0 +1,1 @@
+#so pra fazer o commit msm, to estudando por livrokkkkkkkkk
